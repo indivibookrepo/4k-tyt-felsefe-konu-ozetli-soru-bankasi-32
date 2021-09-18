@@ -1,0 +1,1 @@
+# 4k-tyt-felsefe-konu-ozetli-soru-bankasi-32
